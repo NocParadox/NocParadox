@@ -50,9 +50,9 @@ Here are a few projects that best capture my passion for technology and design:
 
 I love exchanging ideas, collaborating on spirited projects, or simply chatting about the latest in tech. Feel free to reach out!
 
-- **Email:** [rahul@example.com](mailto:nocparadox@gmail.com)
+- **Email:** [Rahul@GOAT.com](mailto:nocparadox@gmail.com)
 - **LinkedIn:** [Rahul Sharma](https://www.linkedin.com/in/nocparadox)
-- **Twitter:** [@rahulsharma](https://twitter.com/nocparadox)
+- **Twitter:** [@Rahulsharma](https://twitter.com/nocparadox)
 
 ---
 
